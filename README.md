@@ -1,1 +1,1 @@
-just showing blog
+just showing blogs
